@@ -1,0 +1,1 @@
+This the recipe of onion sambar which can be used as a sidedish for many south indian dishes like idly and dosai but can also be used as a gravy for a rice . It is a healthy dish which includes many spices like gram dal,toor dal, urad dal,red chilli,pepper,turmeric,Asafoetida powder which is very healthy and also equally tasty.
